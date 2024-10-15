@@ -1,4 +1,11 @@
-## Hi there 👋, i'm wpc!😄
+## 
+🍃
+
+We were born to pursue knowledge,
+
+for we were born with naught
+
+🍂
 <!--
 **successd/successd** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
